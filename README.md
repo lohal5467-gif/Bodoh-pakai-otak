@@ -1,0 +1,1 @@
+# Bodoh-pakai-otak
